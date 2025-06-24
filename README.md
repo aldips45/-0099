@@ -1,1 +1,0 @@
-# hamidashi creative demo version
